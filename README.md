@@ -1,1 +1,1 @@
-# vin
+You can definitely buy a good used car, and it’ll be a great investment if you can’t buy a new car at a dealership from an official seller. Modern ways to check a car’s condition let you make the right decision before buying. I advise going to the viewing with a trusted mechanic who can inspect the car visually, and there are also services like [FAXVIN](https://www.faxvin.com/vin-check/dmv) to order a VIN report. There are even plans where you can order several reports at once. Good for people checking several cars.
